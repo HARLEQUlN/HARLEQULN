@@ -15,7 +15,7 @@
 
 
 
-alter egos ⸻> 　[main](https://github.com/fluidxon) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
+alter egos ⸻> 　[main](https://github.com/indirectory) 　[alt](https://github.com/ssaparata) 　[EVIL](https://github.com/nezoshokii) <br>
 
 　
 
