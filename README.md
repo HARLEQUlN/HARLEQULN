@@ -2,7 +2,7 @@
 <div align="center">
     
 
-<a href="https://rentry.co/vonkrugers"> rentry </a>
+<a href="https://github.com/like-1999"> main </a>
 
 ⸻⸻⸻
 
