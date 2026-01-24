@@ -10,7 +10,7 @@
 
 im a he/him but any prns are ok <br>
 not sober most of the time. but im not drunk either <br>
-c+h enc unless stated so. :)
+c+h enc unless stated otherwise :)
 
 ⸻⸻⸻
 
